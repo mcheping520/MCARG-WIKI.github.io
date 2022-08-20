@@ -11,4 +11,17 @@ MCARG是伪都市传说，用来模拟恐怖、真实等的都市传说，就比
 
 ### MCARG的知名主播
 - [吾乃肆玖](https://space.bilibili.com/206085081)
-  ![](https://i0.hdslb.com/bfs/face/414d74e49f74e43c4dac3010e94722a6474f337c.jpg@240w_240h_1c_1s.webp)
+- [诺子哥](https://space.bilibili.com/400815397)
+- [OxygenNine](https://space.bilibili.com/159146024)
+
+注意⚠：只有知名up主，如果你认为知名的up主不在上面，可以在我的评论区(lssuses)留下up主名字以及链接
+（可以发我邮箱：2480591482@qq.com）（警告！请在2000粉丝以上MCARG up主可留言！如果不是我就会删除留言！）
+
+#### MCARG知名的主题
+- OxygenNine创作的[恐声症](https://space.bilibili.com/159146024/channel/collectiondetail?sid=225309)、[索引循环（恐声症后续、半弃坑）](https://space.bilibili.com/159146024/channel/collectiondetail?sid=408669)
+- 诺子哥创作的[RED_EYES](https://space.bilibili.com/400815397/channel/collectiondetail?sid=158059) （由于诺子哥认为自己的作品很烂所以就弃坑了）
+- 吾乃肆玖创作的[Jeena's World](https://space.bilibili.com/206085081/channel/collectiondetail?sid=97983)、[Help US](https://space.bilibili.com/206085081/channel/collectiondetail?sid=98031)、[第七维度](https://space.bilibili.com/206085081/channel/collectiondetail?sid=138945)、[第七维度：莫比乌斯-正在创作中](https://space.bilibili.com/206085081/channel/collectiondetail?sid=549307)
+
+# 文章正在改造中，如有什么意见请在评论区(lssues) or 邮箱(2480591482@qq.com)
+
+
